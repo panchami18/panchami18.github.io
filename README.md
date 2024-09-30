@@ -7,9 +7,9 @@ I am 21 years old enthusiastic and detail-oriented entry-level co-worker eager t
 G.C.E.(Advanced Level Examination) | Taxila Central College - Horana
 FEBRUARY 2023 – BIOLOGICAL STREAM,
 
-•	Chemistry            C Pass
-•	Biology              C Pass
-•	Physics              C Pass 
+1.	Chemistry            C Pass
+2.	Biology              C Pass
+3.	Physics              C Pass 
 
 G.C.E. (Ordinary Level Examination) | Panadura Balika M.V – Panadura 
 DECEMBER 2018 – NINE 'A PASSES' IN ALL SUBJECTS INCLUDING,
