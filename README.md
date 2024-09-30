@@ -5,7 +5,8 @@ I am 21 years old enthusiastic and detail-oriented entry-level co-worker eager t
 ▪ Secondary education
 
 G.C.E.(Advanced Level Examination) | Taxila Central College - Horana
-FEBRUARY 2023 – BIOLOGICAL STREAM
+FEBRUARY 2023 – BIOLOGICAL STREAM,
+
 •	Chemistry            C Pass
 •	Biology              C Pass
 •	Physics              C Pass 
@@ -25,11 +26,50 @@ FOLLOWING – 2024 JULY
 Diploma in Pharmacy Management and Practice to the External Pharmasist Examination 2026| Aquinas College of Higher Studies - Colombo 
 FOLLOWING - 2023 DECEMBER
 
+### Other Qualifications
+Diploma in English Language and Literature| Aquinas College of Higher Studies - Colombo 
+July 2024
+
+
 ### Work Experience
 Assistant Pharmasist @ Cargills Food City Horana - 02
 -Eight Months Co-Worker From 3rd January to 5th August 2024
 
-### 
+### Projects
+Agri Gen Z|Participant|September 2024
+Biotechnology Rainbow Project| Committee Member|Ongoing
+
+ ### SKILLS
+ 
+ Adaptability
+ Organizational Skills
+ Attention to Detail
+ Time Management
+ Team Player
+
+ ### Languages
+ 
+ English
+ Sinhala
+ Hindi
+
+ ### Hobbies
+
+Explore Reading Materials
+Explore Night Sky
+Swimming
+
+### Access to the resume
+
+
+### Contact Details
+Email-
+   hs24510263@my.sliit.lk
+
+ 
+ 
+
+
 
 
 
