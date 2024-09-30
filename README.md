@@ -35,26 +35,27 @@ July 2024
 Assistant Pharmasist @ Cargills Food City Horana - 02
 Eight Months Co-Worker From 3rd January to 5th August 2024
 
-### Projects,
+### Projects
+
 1.Agri Gen Z|Participant|September 2024
 
 2.Biotechnology Rainbow Project|Committee Member|Ongoing
 
 ### Skills
+
+1.Adaptability
  
- 1.Adaptability
+2.Organizational Skil
  
- 2.Organizational Skil
+3.Attention to Detail
  
- 3.Attention to Detail
+4.Time Management
  
- 4.Time Management
- 
- 5.Team Player
+5.Team Player
 
 ### Languages
  
-1.English
+ 1.English
 
 2.Sinhala
 
