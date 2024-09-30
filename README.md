@@ -44,9 +44,13 @@ Assistant Pharmasist @ Cargills Food City Horana - 02
 ### Skills,
  
  1.Adaptability
+ 
  2.Organizational Skills
+ 
  3.Attention to Detail
+ 
  4.Time Management
+ 
  5.Team Player
 
 ### Languages,
