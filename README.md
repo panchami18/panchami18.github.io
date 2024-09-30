@@ -39,7 +39,7 @@ Assistant Pharmasist @ Cargills Food City Horana - 02
 Agri Gen Z|Participant|September 2024
 Biotechnology Rainbow Project| Committee Member|Ongoing
 
- ### SKILLS
+ ### Skills
  
  Adaptability
  Organizational Skills
