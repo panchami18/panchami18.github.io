@@ -36,36 +36,36 @@ Assistant Pharmasist @ Cargills Food City Horana - 02
 
 -Eight Months Co-Worker From 3rd January to 5th August 2024
 
-### Projects
-Agri Gen Z|Participant|September 2024
+### Projects,
+1.Agri Gen Z|Participant|September 2024
 
-Biotechnology Rainbow Project| Committee Member|Ongoing
+2.Biotechnology Rainbow Project| Committee Member|Ongoing
 
-### Skills
+### Skills,
  
- Adaptability
- Organizational Skills
- Attention to Detail
- Time Management
- Team Player
+ 1.Adaptability
+ 2.Organizational Skills
+ 3.Attention to Detail
+ 4.Time Management
+ 5.Team Player
 
-### Languages
+### Languages,
  
- English
- Sinhala
- Hindi
+ 1.English
+ 2.Sinhala
+ 3.Hindi
 
-### Hobbies
+### Hobbies,
 
-Explore Reading Materials
-Explore Night Sky
-Swimming
+1.Explore Reading Materials
+2.Explore Night Sky
+3.Swimming
 
 ### Access to the resume
 [Download](https://drive.google.com/file/d/1BrYfi2qIlpm9pluwqEKprvkkhsHErUUP/view?usp=sharing)
 
 ### Contact Details
-hs24510263@my.sliit.lk
+Email: hs24510263@my.sliit.lk
 
  
  
