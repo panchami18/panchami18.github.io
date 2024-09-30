@@ -40,7 +40,7 @@ Eight Months Co-Worker From 3rd January to 5th August 2024
 
 2.Biotechnology Rainbow Project|Committee Member|Ongoing
 
-### Skills,
+### Skills
  
  1.Adaptability
  
@@ -52,7 +52,7 @@ Eight Months Co-Worker From 3rd January to 5th August 2024
  
  5.Team Player
 
-### Languages,
+### Languages
  
 1.English
 
@@ -60,7 +60,7 @@ Eight Months Co-Worker From 3rd January to 5th August 2024
 
 3.Hindi
 
-### Hobbies,
+### Hobbies
 
 1.Explore Reading Materials
 
