@@ -39,7 +39,7 @@ Assistant Pharmasist @ Cargills Food City Horana - 02
 Agri Gen Z|Participant|September 2024
 Biotechnology Rainbow Project| Committee Member|Ongoing
 
- ### Skills
+### Skills
  
  Adaptability
  Organizational Skills
@@ -47,20 +47,20 @@ Biotechnology Rainbow Project| Committee Member|Ongoing
  Time Management
  Team Player
 
- ### Languages
+### Languages
  
  English
  Sinhala
  Hindi
 
- ### Hobbies
+### Hobbies
 
 Explore Reading Materials
 Explore Night Sky
 Swimming
 
 ### Access to the resume
-pdf
+https://drive.google.com/file/d/1BrYfi2qIlpm9pluwqEKprvkkhsHErUUP/view?usp=sharing
 
 ### Contact Details
 Email-
