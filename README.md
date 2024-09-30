@@ -63,7 +63,7 @@ Swimming
 [Download](https://drive.google.com/file/d/1BrYfi2qIlpm9pluwqEKprvkkhsHErUUP/view?usp=sharing)
 
 ### Contact Details
-[Email](hs24510263@my.sliit.lk)
+[hs24510263@my.sliit.lk]
 
  
  
