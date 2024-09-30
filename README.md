@@ -33,10 +33,12 @@ July 2024
 
 ### Work Experience
 Assistant Pharmasist @ Cargills Food City Horana - 02
+
 -Eight Months Co-Worker From 3rd January to 5th August 2024
 
 ### Projects
 Agri Gen Z|Participant|September 2024
+
 Biotechnology Rainbow Project| Committee Member|Ongoing
 
 ### Skills
@@ -63,7 +65,7 @@ Swimming
 [Download](https://drive.google.com/file/d/1BrYfi2qIlpm9pluwqEKprvkkhsHErUUP/view?usp=sharing)
 
 ### Contact Details
-[hs24510263@my.sliit.lk]
+hs24510263@my.sliit.lk
 
  
  
