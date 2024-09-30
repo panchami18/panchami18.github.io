@@ -32,8 +32,7 @@ July 2024
 
 
 ### Work Experience
-Assistant Pharmasist @ Cargills Food City Horana - 02
-Eight Months Co-Worker From 3rd January to 5th August 2024
+Assistant Pharmasist @ Cargills Food City Horana - 02, Eight Months Co-Worker From 3rd January to 5th August 2024
 
 ### Projects
 
