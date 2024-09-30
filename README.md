@@ -60,7 +60,7 @@ Explore Night Sky
 Swimming
 
 ### Access to the resume
-
+pdf
 
 ### Contact Details
 Email-
