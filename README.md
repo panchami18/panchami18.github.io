@@ -60,11 +60,11 @@ Explore Night Sky
 Swimming
 
 ### Access to the resume
-https://drive.google.com/file/d/1BrYfi2qIlpm9pluwqEKprvkkhsHErUUP/view?usp=sharing
+[Publication] (https://drive.google.com/file/d/1BrYfi2qIlpm9pluwqEKprvkkhsHErUUP/view?usp=sharing)
 
 ### Contact Details
 Email-
-   hs24510263@my.sliit.lk
+  [Publication] (hs24510263@my.sliit.lk)
 
  
  
